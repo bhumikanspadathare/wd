@@ -1,2 +1,1 @@
-# wd
-this is bhoomika 
+# Bhoomika N S Padathare 
